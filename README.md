@@ -1,1 +1,0 @@
-#shi'era developer
